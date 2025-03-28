@@ -5,6 +5,7 @@ ________________________________________________________________________________
 Latest News:
 
 06/09/2023 - Our work has been accepted for publication in Annals of Biomedical Science and Engineering (https://doi.org/10.29328/journal.abse.1001022)
+
 08/26/2022 - Our work has been accepted for presentation at the 2022 Southern California Conferences for Undergraduate Research at Pepperdine University
 
 ___________________________________________________________________________________________________________________________
